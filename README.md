@@ -4,7 +4,7 @@ These are only for 10, 20, and 29 Gallon Aqueon aquariums using 10mm and 65mm ma
 
 Super glue for hinges are required. Silicone to the tom and bottom should be used. Little space given for adjustments.
 
-Mesh kits should be used to secure. .862"
+Mesh kits should be used to secure. .812"
 
 Glass sizing for 10H is for 2.2mm (3/32") single strength glass: 
 
